@@ -1,5 +1,5 @@
 # lewis13
-## hai im sid
+## hi im sid
 ![sid](https://github.com/user-attachments/assets/a1f0e0f0-1bdb-4b86-ba6a-747e84809758)
 
 
@@ -7,7 +7,7 @@
 
 [facebook](https://facebook.com)
 
-### i like
+### this is 
 
 ![HD-wallpaper-the-galaxy-wolf-wolf-galaxy-artist-artwork-digital-art-hop](https://github.com/user-attachments/assets/5782a48e-0e69-46ca-8fbb-7d7ed75a7c24)
 
